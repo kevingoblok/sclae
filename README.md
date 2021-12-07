@@ -1,1 +1,1 @@
-# sclae
+bot nya bukan punya guwej
